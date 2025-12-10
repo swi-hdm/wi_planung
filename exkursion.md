@@ -1,0 +1,1 @@
+Ausflug nach Böblingen
